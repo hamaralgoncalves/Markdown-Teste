@@ -1,0 +1,1 @@
+Olá meu nome é Henrique e trabalho remotamente para a Sankhya Gestão como Analista de Qualidade de Software.
